@@ -1,2 +1,0 @@
-# Hw01
- nbmnbmnbmnb
